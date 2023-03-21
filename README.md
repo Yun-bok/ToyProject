@@ -1,1 +1,2 @@
-![베이글](https://user-images.githubusercontent.com/85428951/226709070-4c8a2747-f84c-4543-983e-39f8b4fb4b68.jpg)
+![image](https://user-images.githubusercontent.com/85428951/226709465-79764152-ec49-4fd8-b21f-dbb537815b86.png)
+
